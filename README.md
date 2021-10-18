@@ -1,5 +1,2 @@
 redesign adventure
 eezidjzjdz
-
-izjnsxsk
-
